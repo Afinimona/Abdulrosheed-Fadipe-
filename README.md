@@ -46,7 +46,7 @@ Franca Umasoye Igwe"
 - **Email:** abdulrosheedfadipe@gmail.com 
 
 ## Resume
-- [View My Resume](https://x.com/olalekan_fadipe?t=T7ZFcWpxunMbouWFxNn6ig&s=09)
+- [View My Resume] (https://www.linkedin.com/in/abdulrosheed-fadipe-667052201?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
 
 ## Social Media
 - [Twitter](https://x.com/olalekan_fadipe?t=T7ZFcWpxunMbouWFxNn6ig&s=09)
